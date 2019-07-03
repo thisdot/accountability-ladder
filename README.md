@@ -14,12 +14,12 @@
 - https://Betterallies.com - a book about everyday actions to create inclusive, engaging workplaces
 - www.guidetoallyship.com - an ever-evolving and growing open source guide meant to provide you with the resources for becoming a more effective ally.
 
-**Reporting**, we recommend groups use Beacon which will be out shortly. https://www.gofundme.com/coc-beacon
+**Reporting**, We recommend groups use Beacon which will be out shortly. https://www.gofundme.com/coc-beacon
 
 
 ## The Ladder: Level 1 to Level 4
 
-Note: This should not be a replacement for judgment. The intent of person also matters greatly.  If you have earned several bans within a year and show the inability or unwillingness to change, then the next ban becomes longer up to banned for life.  
+**Note:** This should not be a replacement for judgment. The intent of person also matters greatly.  If you have earned several bans within a year and show the inability or unwillingness to change, then the next ban becomes longer up to banned for life.  
 
 ### Level 1 - Verbal offenses
 Violations include but are not limited to:
